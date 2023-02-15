@@ -1,3 +1,3 @@
 # Universidad
 
-![Al](https://user-images.githubusercontent.com/118904109/219029941-1d7b22e0-e247-4b3d-9535-a0858c67ffde.png)
+![image](https://user-images.githubusercontent.com/118362717/219030765-4cc8de0a-f315-43bc-9c56-91d839b81926.png)
